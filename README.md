@@ -1,4 +1,4 @@
-# Fate Dice & Fate Zarı Terms of Service
+# Fate Dice & Fate Zarı Terms of Service and Privacy Policy
 Thank you for using Fate Dice & Fate Zarı. Please read this Terms of Service agreement carefully before accessing or using Fate Dice or Fate Zarı.
 
 ## Definitions 
